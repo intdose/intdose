@@ -1,4 +1,5 @@
-<div align="center" dir="auto">── .✦(:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅)
+<div align="center" dir="auto">ᛝ <img width="150" height="20" alt="image" src="https://s7.ezgif.com/tmp/ezgif-731f2e10f908d73c.gif" /> ⊹ ࣪ ˖
+
 <p align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/bf3c8cfb-3d15-404b-90cb-f2e87711eb1f" />
 
   # × ... KIRIE .ᐣ.ᐟ
